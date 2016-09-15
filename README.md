@@ -1,2 +1,2 @@
 # aymanandnick
-Ayman > everyone
+more :fire: than the note 7
